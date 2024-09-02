@@ -6,7 +6,7 @@ I make stuff related to SuperTux and VS Stev, all fanmade since I don't actually
 
 I am also working on my own game named Strange Bill Journey, and the first release of it is meant to happen this month, so yeah, exciting I guess!
 
-Pronouns: He / They
+Pronouns: She / Her
 
 Sexuality: Bisexual
 
